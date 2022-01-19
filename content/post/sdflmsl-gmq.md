@@ -13,4 +13,4 @@ sdfsd **fsdf** sdf
 
 sdfsdfsdf
 
-sdfsdfsdf
+![](/images/monitor-nad-notebookem-1.jpg)
